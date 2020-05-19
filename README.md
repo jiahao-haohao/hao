@@ -1,5 +1,12 @@
 http://李景加浩.3ee.cc
 加浩制作加浩制作加浩制作加浩制作加浩制作加浩制作加浩制作加浩制作加浩制作
+                                       https://bitbucket.org/sogou-jiahao
+                                       https://github.com/jiahao-haohao
+                                       https://gitee.com/jiahao-513
+                                       https://github.com/sogou-sogou
+                                               
+                                       以上均为加浩版权
+                                      
 
 
 
@@ -7,19 +14,7 @@ http://李景加浩.3ee.cc
 
 
 
-加浩制作加浩制作加浩制作加浩制作加浩制作加浩制作加浩制作加浩制作加浩制作
-
-
-
-
-                                       https://bitbucket.org/sogou-jiahao/sogou.git
-                                       https://github.com/jiahao-haohao/hao
-                                       https://gitee.com/jiahao-513/sogou
-                                       https://github.com/sogou-sogou/sogou
-                                               
-                                       
-                                       Copyright © 2017
-                                      
+ 加浩制作加浩制作加浩制作加浩制作加浩制作加浩制作加浩制作加浩制作加浩制作                                     
                                        
                                                                   
                                        
@@ -27,7 +22,7 @@ http://李景加浩.3ee.cc
                                        
                                        
                                        
-                                                        以上均为加浩版权
+                                                        
                                
 
                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  
@@ -209,7 +204,7 @@ http://李景加浩.3ee.cc
        
          
          
-                                                      加浩版权所有
+                                                      
            
             
              
